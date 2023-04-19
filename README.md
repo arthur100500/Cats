@@ -1,12 +1,17 @@
-# Cats
+# ✨ 💖 CATS!! 🐈 ✨
 Hello there! You have come to a cat photo storage!!
+I have two cats, Petra and Izalia, Petra is a thai cat, and Izalia is tonkinese 
+Both are very friendly and love being around people
+
+I made a collection of the photos an hopefully it will be expanded and enhanced every year
+# Photos
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134170083012679/IMG20220709131225_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134344813531267/IMG20220129203000_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134345799192648/IMG20220501085521_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134169722298448/IMG20220501085501.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133255770882078/IMG_20230218_164355_648.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133524126634004/IMG-a239fd6c0cb60ad7ced586cf50d16630-V.jpg)
-![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133890700415006/Screenshot_2022-10-15-20-39-04-73_948cd9899890cbd5c2798760b2b95377.jpg)
+![image](https://cdn.discordapp.com/attachments/428611943692238848/109813389070041500/Screenshot_2022-10-15-20-39-04-73_948cd9899890cbd5c2798760b2b95377.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134050717323284/IMG20220707194236_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134344188563456/IMG20220709131258_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133376780734494/IMG20230211153213.jpg)
@@ -33,7 +38,7 @@ Hello there! You have come to a cat photo storage!!
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133255494045786/IMG_20230223_125512_296.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133891644129300/IMG_0296.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134346377994361/IMG20211228170848_01.jpg)
-![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134168531124254/Screenshot_2021-12-26-22-49-30-22_68e74cc0265513bba3f4cf8e2c9891fe.jpg)
+![image](https://cdn.discordapp.com/attachments/428611943692238848/109813416853112425/Screenshot_2021-12-26-22-49-30-22_68e74cc0265513bba3f4cf8e2c9891fe.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133479872536666/IMG20230205134043.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098134345455247370/IMG20220212190658_01.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133377133072444/IMG20230211153201.jpg)
@@ -57,9 +62,9 @@ Hello there! You have come to a cat photo storage!!
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133523904348160/IMG-e5a404b56d0408aaac1dc8cbcff18901-V.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133535166042133/IMG-a7f3e72179f4a412ef594223bfa7672c-V.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133377762201650/IMG20230205205415.jpg)
-![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133890067075123/Screenshot_2022-11-03-21-41-28-85_948cd9899890cbd5c2798760b2b95377.jpg)
+![image](https://cdn.discordapp.com/attachments/428611943692238848/109813389006707512/Screenshot_2022-11-03-21-41-28-85_948cd9899890cbd5c2798760b2b95377.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133480648482857/IMG_20221224_133105_541.jpg)
-![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133480845606922/Screenshot_2022-12-13-12-24-46-07_948cd9899890cbd5c2798760b2b95377.jpg)
+![image](https://cdn.discordapp.com/attachments/428611943692238848/109813348084560692/Screenshot_2022-12-13-12-24-46-07_948cd9899890cbd5c2798760b2b95377.jpg)
 ![image](https://media.discordapp.net/attachments/428611943692238848/1039130861020393493/cat4.jpg)
 ![image](https://media.discordapp.net/attachments/428611943692238848/1039130861276254238/cat5.jpg)
 ![image](https://media.discordapp.net/attachments/428611943692238848/1039130960161144832/cat10.jpg)
@@ -67,7 +72,7 @@ Hello there! You have come to a cat photo storage!!
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133257754775572/IMG20230211155451.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133376453591060/IMG20230211155435.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133891950329906/IMG_0550.jpg)
-![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133523279384597/Screenshot_2022-12-04-16-26-07-15_7ce04c763914e01b61700c480fb34db2.jpg)
+![image](https://cdn.discordapp.com/attachments/428611943692238848/109813352327938459/Screenshot_2022-12-04-16-26-07-15_7ce04c763914e01b61700c480fb34db2.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133378374582332/IMG20230205200815.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133377477001237/IMG20230211144754.jpg)
 ![image](https://cdn.discordapp.com/attachments/428611943692238848/1098133378085179412/IMG20230205205412.jpg)
